@@ -22,6 +22,7 @@ because the program is not signed i invite you to click on additional informatio
 
 # ExiteLag_Crack
 
+
 ### FEATURES
 1 Real-time Optimization
 ExitLag ensures better and faster connection routes to game servers, eliminating connection issues with a single button press.
